@@ -1,3 +1,7 @@
+![Bewerbungsfoto01](https://github.com/user-attachments/assets/4938e21f-8346-4579-ba61-204f3c002705)
+Max Mustermann - Max Mustermann Straße 28 - Kosice -044 45 - Slowakei - erik.szopka@googlemail.com - Tel.: +421 123 123 556
+--------------------------------------------------------------------------------------------------------------------------------
+
 ## Education
 
 ### **Technical University of Košice**  
