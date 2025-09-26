@@ -1,4 +1,4 @@
-Max Mustermann - Max Mustermann Straße 28 - Kosice -044 45 - Slowakei - erik.szopka@googlemail.com - Tel.: +421 123 123 556
+Max Mustermann - Max Mustermann Straße 28 - Kosice -044 45 - Slowakei - mailto:vvv - Tel.: +421 123 123 556
 --------------------------------------------------------------------------------------------------------------------------------
 
 ## Education
